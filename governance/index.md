@@ -13,8 +13,8 @@ If you have a family and you have kids, you are not running a business, you are 
 
 J. R. Jayewardene, as the Finance Minister of Ceylon, delivered a historic speech at the San Francisco Peace Conference on September 6, 1951. Jayewardene advocated for a free, independent, and unpunished Japan.  He successfully shifted the global conference from a stance of wartime vengeance to one of reconciliation.  He quoted the Dhammapada and changed the course of history for Japan.
 
-> නහි වේරේන වේරානි සම්මන්තීධ කුදාචනං  
-> අවේරේන ච සම්මන්තී  
+> නහි වේරේන වේරානි සම්මන්තීධ කුදාචනං    
+> අවේරේන ච සම්මන්තී    
 > ඒස ධම්මෝ සනත්තනෝ
 
 > මේ ලෝකයේ කිසි කලෙක වෛරයෙන් වෛරය නොසංසිඳෙයි.
