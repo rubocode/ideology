@@ -17,8 +17,8 @@ J. R. Jayewardene, as the Finance Minister of Ceylon, delivered a historic speec
 > අවේරේන ච සම්මන්තී    
 > ඒස ධම්මෝ සනත්තනෝ
 
-> මේ ලෝකයේ කිසි කලෙක වෛරයෙන් වෛරය නොසංසිඳෙයි.
-> අවෛරයෙන්ම වෛරය සංසිඳෙයි.
+> මේ ලෝකයේ කිසි කලෙක වෛරයෙන් වෛරය නොසංසිඳෙයි.  
+> අවෛරයෙන්ම වෛරය සංසිඳෙයි.  
 > මෙය සනාතන ධර්මයකි.
 
 > Hatreds never cease through hatred in this world;  
