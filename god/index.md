@@ -11,7 +11,7 @@ God is Truth. To believe in God is to believe in Truth. Jesus Christ, the son of
 > **John 14:6-7 KJV**
 
 > But seek the kingdom of God, and all these things shall be added to you.  
-> Do not fear, little flock, for it is your Father’s good pleasure to give you the kingdom.
+> Do not fear, little flock, for it is your Father’s good pleasure to give you the kingdom.  
 > **Luke 12:31-32 KJV**
 
 > And all things are of God, who hath reconciled us to himself by Jesus Christ, and hath given to us the ministry of reconciliation.  
