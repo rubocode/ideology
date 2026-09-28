@@ -17,6 +17,6 @@
 * [Governance](governance)
 * [Education](education)
 * [Meritocracy](meritocracy)
-* [Strategy](stratgey)
+* [Strategy](strategy)
 * [Vision](vision)
 * [Policy](policy)
