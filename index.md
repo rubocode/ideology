@@ -1,5 +1,4 @@
 > [home](/governance)
-> &bull; Work in progress...
 
 ![banner](/ideology/photos/banner.png)
 
