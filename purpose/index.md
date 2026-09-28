@@ -19,7 +19,7 @@ It is imperative that you find out if there is an absolute truth or not.  If the
 > **Epictetus**
 
 > But seek ye first the kingdom of God, and his righteousness;  
-> and all these things shall be added unto you.
+> and all these things shall be added unto you.  
 > **Matthew 6:33 KJV**
 
 The purpose of life is to find peace, freedom and liberation. Our institutions need to support this purpose for each individual. The aim is not to have these at the expense of others, but to give these to others at your expense.
