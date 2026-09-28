@@ -25,5 +25,5 @@ It must be obvious that humans are not capable of creating a perfect or even a n
 The secret to governance is not trying to be God. We must do our part and leave our fate with the loving, just and sovereign God who has even arranged for the forgiveness of sins.
 
 > Do not judge, or you too will be judged. For in the same way you judge others, you will be judged, and with the measure you use, it will be measured to you.  
-> Why do you look at the speck of sawdust in your brother’s eye and pay no attention to the plank in your own eye?  
+> Why do you look at the speck of sawdust in your brother’s eye and pay no attention to the plank in your own eye?  
 > **Matthew 7:1-3 NIV**
