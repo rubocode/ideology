@@ -1,4 +1,4 @@
-> [home](/governance)
+> [home](/philosophy)
 
 ![banner](/ideology/photos/banner.png)
 
