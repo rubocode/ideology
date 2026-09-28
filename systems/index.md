@@ -21,7 +21,7 @@ The ultimate goal for an individual is to gain the capacity that allows them to 
 > Irrigators channel waters.  
 > Fletchers straighten arrows.  
 > Carpenters bend wood.  
-> The wise master themselves.
+> The wise master themselves.  
 > **Dhammapada (Verse 80)** 
 
 > Conquer yourself rather than the world.  
