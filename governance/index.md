@@ -23,7 +23,7 @@ J. R. Jayewardene, as the Finance Minister of Ceylon, delivered a historic speec
 
 > Hatreds never cease through hatred in this world;  
 > Through love alone they cease.  
-> This is an eternal law.
+> This is an eternal law.  
 > **ධම්මපදය (The Dhammapada)**
 
 > But I tell you, love your enemies and pray for those who persecute you, that you may be children of your Father in heaven.  
