@@ -16,8 +16,8 @@ The JVP terrorism and the LTTE terrorism were brought under control with the dea
 
 While the terrorist violence was brought under control, the root causes of the origination of these movements need to be throughly understood and addressed. Corruption at the top makes it very easy for any marginalized group to resort to revolution and violence to overthrow the existing regime. A new vision must capture the solution to transition into to a better power structure.
 
-> **ETHICAL DEVELOPMENT™    
-> **ධාර්මික සංවර්ධනය™  
+> **ETHICAL DEVELOPMENT&trade;**    
+> **ධාර්මික සංවර්ධනය&trade;** 
 
 The better we understand life’s purpose, individual purpose and the purpose of each institution, the better our effectiveness in rising up to the challenges.
 
