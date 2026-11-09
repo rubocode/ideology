@@ -19,7 +19,7 @@ The five fundamental roots result in five types of people:
 
 The last one is a little different from the other four. The other four hold rigidly to their belief and journey. The seeker is willing to change his mind and may possibly end up in one of the four categories or even simply continue to stay a seeker.
 
-I was born into a Buddhist family in Colombo, Sri Lanka and I was a practicing Buddhist.  In my late forties, I went through a combination of hardships and challenges and an accidental meeting with a Christian pastor helped me overcome the spiritual challenges and helped me put my life back on track.
+I was born into a Buddhist family in Colombo, Sri Lanka and I was a practicing Buddhist.  In my late forties, I went through a combination of hardships and challenges.  An accidental meeting with a Christian pastor helped me overcome the spiritual challenges and put my life back on track.
 
 > Ask, and it shall be given you;  
 > seek, and ye shall find;  
